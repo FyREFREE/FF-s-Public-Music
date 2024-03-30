@@ -1,4 +1,4 @@
-I recently had an epiphony that changed the way I look at Video Game Music creation, and it all starts with the Super Star theme from Super Mario.
+I recently had an epiphany that changed the way I look at Video Game Music creation, and it all starts with the Super Star theme from Super Mario.
 
 The Starman theme is a classic and everyone remembers it, and that's what makes it so... Morphable. Check this out.
 
